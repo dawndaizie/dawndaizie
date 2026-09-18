@@ -1,4 +1,4 @@
-## hi!! my name is dawniqueca ٩(ˊᗜˋ*)و ♡
+## hi!! my name is dawniqueca ٩(ˊᵕˋ˶)و ⋆˚✿˖°
 
 i'm a freelance designer, with a MA in digital animation and BS in software engineering.
 
